@@ -5,5 +5,3 @@
 </p>
 
 - 💬 Ask me about anything!
-- 😄 Pronouns: He/Him
-- ⚡ Fun fact: I was the senior designer for concerts at Madison Square Garden for years!
